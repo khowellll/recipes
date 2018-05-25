@@ -31,7 +31,10 @@ Directions
 Makes 8 servings.
 
 Nutritional information per serving: calories 350, fiber 3 g, protein 4 g.
-Chicken Kurma
+
+
+**Chicken Kurma**
+
 Ingredients
 1/4 cup grated unsweetened coconut
 1 1/2 tablespoons raw cashew pieces
